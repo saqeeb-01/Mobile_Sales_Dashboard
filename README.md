@@ -25,4 +25,4 @@ If you have any questions or suggestions, feel free to reach out:
 
 Name: G Saqeeb Saleem\
 Email: [saqeebsaleem6094@gmail.com]\
-LinkedIn: Your LinkedIn Profile
+LinkedIn: [saqeeb saleem](www.linkedin.com/in/saqeeb-saleem) 
